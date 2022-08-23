@@ -1,0 +1,3 @@
+- olá, me chamo Raquel Tagata.
+- Tenho 16 anos
+- estudo
